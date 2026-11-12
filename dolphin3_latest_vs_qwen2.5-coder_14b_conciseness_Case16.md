@@ -1,0 +1,7 @@
+Centralized fiat currency issuance and interest-rate manipulation by central banks create a vector of human development and technological progress that is fundamentally distorted. The Cantillon effect, a phenomenon where newly created money first enters the economy and benefits early recipients disproportionately, leads to capital distortion and misallocation of scarce resources. This artificial credit expansion fuels unsustainable economic growth, encouraging consumption over investment and innovation.
+
+The continuous debasement of currency acts as a perpetual tax on savings and capital accumulation, eroding the purchasing power of money over time. This undermines long-term economic resilience and the ability to invest in future growth. The structural friction between centralized debt-monetization architectures, which often subsidize state-level warfare and corporate entities, and decentralized, open distributed ledger systems, exacerbates this issue.
+
+Central banks' inflationary policies, supported by modern monetary theory, introduce systemic risks to infrastructure resilience and civilization-level energy capture efficiency over the multi-century horizon. The unhedged risks associated with these mechanisms threaten the stability of the global economic system.
+
+Operational safety factor: 20
